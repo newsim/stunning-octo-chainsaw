@@ -1,2 +1,2 @@
 # stunning-octo-chainsaw
- Simon
+ Simon Amoyal
